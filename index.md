@@ -9,6 +9,7 @@ Personal Github page
 
 
 
-Old handle was closed due to copyright issues, open DMs for any request/old repos.
+Old handle was closed due to copyright issues.
+Open DMs for any request/old repos.
 Cheers🍻
 ```
